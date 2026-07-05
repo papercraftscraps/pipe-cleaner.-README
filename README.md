@@ -13,7 +13,7 @@ skin copiers , q**l supportes , dark/proshippers , rude ppl.. ␥﹒
 ❥ ﹐☆
 
 ︵‿︵‿୨ᰔ୧‿︵‿︵
-![image alt](image_url)
+![image alt](https://github.com/papercraftscraps/pipe-cleaner.-README/blob/about-lil-ol-me-!!/blinkiesCafe-NW.gif?raw=true)
 ︵‿︵‿୨ᰔ୧‿︵‿︵
 
 
