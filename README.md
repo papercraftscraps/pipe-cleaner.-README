@@ -16,7 +16,5 @@ skin copiers , q**l supportes , dark/proshippers , rude ppl.. ␥﹒
 
 
 ![image alt](https://github.com/papercraftscraps/pipe-cleaner.-README/blob/about-lil-ol-me-!!/scraps%20introduction%20board.webp?raw=true)
-
-
 ![image alt](https://github.com/papercraftscraps/pipe-cleaner.-README/blob/about-lil-ol-me-!!/download%20(1).jpg?raw=true)
 
