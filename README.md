@@ -6,9 +6,9 @@
 
 ︵‿︵‿୨ᰔ୧‿︵‿︵︵‿︵‿୨ᰔ୧‿︵‿︵
 
-ᝰ ALSOOO , im usually called devan too so feel free to call me Scraps or devan i dunnoo.. ✸﹕DNI LIST 
+ᝰ ALSOOO , im usually online almost everyday i dunnoo.. ✸﹕DNI LIST 
 
-skin copiers , q**l supportes , dark/proshippers , rude ppl.. ␥﹒
+skin copiers , q**l supportes , dark/proshippers ,.. ␥﹒
 
 ❥ ﹐☆
 
