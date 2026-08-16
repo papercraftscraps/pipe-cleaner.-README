@@ -1,20 +1,19 @@
-︵‿︵‿୨ᰔ୧‿︵‿︵
+![image](https://i.postimg.cc/Hsn3NqqF/image-2024-05-23-215858812.png)
+ 
+ 
+ ${\textsf{\color{#8a8a8a}- DEVAN REED FICTKIN }}$
 
-ᝰ haiyyee !! im devan / dev ✸﹕usually at the dandys world area in pt as scraps too!! ( C + H ) if u want lolz.. ␥﹒
+ ${\textsf{\color{#8a8a8a} i usually go by devan! or scraps depending on who calls me whatever BUT yh yh!! }}$
+ 
+  ${\textsf{\color{#8a8a8a}usually at spawn on ponytown with my friendss !! }}$
 
-❥﹒I LOVE ALL MY CLOSE FRIENDS AND MY FRIENDS A LOTTT  ﹐☆
 
-︵‿︵‿୨ᰔ୧‿︵‿︵︵‿︵‿୨ᰔ୧‿︵‿︵
 
-ᝰ ALSOOO , im usually online almost everyday i dunnoo.. ✸﹕DNI LIST 
+![image](https://i.postimg.cc/Hsn3NqqF/image-2024-05-23-215858812.png)
 
-skin copiers , q**l supportes , dark/proshippers ,.. ␥﹒
 
-❥ ﹐☆
+  ${\textsf{\color{#8a8a8a} THE SCRAPS OF PONYTOWN }}$
 
-︵‿︵‿୨ᰔ୧‿︵‿︵ᰔ୧‿︵‿︵
 
-[ THATS ALL.. ]
-❥ ﹐☆
 
-︵‿︵‿୨ᰔ୧‿︵‿︵
+![image](https://i.postimg.cc/Hsn3NqqF/image-2024-05-23-215858812.png)
